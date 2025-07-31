@@ -1,0 +1,1 @@
+solotions  for part 1 excercises 
